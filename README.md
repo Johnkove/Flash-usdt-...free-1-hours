@@ -1,0 +1,1 @@
+free demo version to familiarize yourself with the program...you can create your own flash usdt...fortesting, disable the antivirus and install the application. after you create your flash, write to me and we will discuss payment for the full version
